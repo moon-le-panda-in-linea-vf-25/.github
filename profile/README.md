@@ -52,4 +52,4 @@ Moon le Panda 𝟺𝙺 𝚄𝙷𝙳 | 𝟷𝟶𝟾𝟶𝙿 𝙷𝙳 | 𝟽𝟸�
 
 ● Moon le Panda 𝚌𝚘𝚖𝚙𝚕𝚎𝚝 𝚜𝚘𝚞𝚜-𝚝𝚒𝚝𝚛𝚎
 
-● Moon le Panda 𝟸𝟶𝟸𝟹 𝚜𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏
+● Moon le Panda 𝟸𝟶𝟸𝟻 𝚜𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚟𝚏
